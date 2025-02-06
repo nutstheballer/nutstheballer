@@ -1,1 +1,1 @@
-this account has moved to @skeleton3202 because i dont know how to change username
+this is the old account of the glorious king jbone (@liquidjskeleton)
